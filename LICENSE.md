@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://InvestigatorTuck.github.io/ulysses-for-macos-vy97/ ) |
  |---------------------|----------------------:|
 
 
